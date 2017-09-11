@@ -84,7 +84,7 @@ La empresa Virgin Mobile, dedicada a los servicios de telefonía celular, permit
 
 Para más información visitar:
 
-http://www.virginmobile.cl/recarga-en-redes-sociales
+https://www.virginmobile.cl/tarifas/pago-automatico
 
 https://www.uanbai.com/
 
